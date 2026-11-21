@@ -139,7 +139,7 @@ There was just a calm, beautiful blue sky with white, fluffy clouds up above.
 .  
 .  
 
-White gloves attached to long, stretchy noodle arms.  
+Yellow gloves attached to long, stretchy noodle arms.  
 Huge, yellow eyes with black, square pupils.  
 Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little, as if his muscles for smiling and frowning were inverted.  
 It was foggy. An artificial grey cloudy sky was above them, but you could see the hexagonal panels projecting it like a hologram. It was cold. He could feel the cold air hitting his passages like sharp needles through his nonexistent nose. He knew it was all fake, but it felt so real. There was nothing he could do but play along.  
