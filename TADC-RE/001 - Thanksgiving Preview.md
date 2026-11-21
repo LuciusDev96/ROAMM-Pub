@@ -45,7 +45,7 @@
 
 - Rock: "Whoa!! What you got there, Ray-Roy???"  
 - Leroy: "Oh, you know! Birthday present! From myself!!!" (Sets it down on the table and opens it up)  
-- Leroy: "The BARRETT M82!!!!"  
+- Leroy: "The BARRETT M82-ULTRA with HyperShock's Tannerite Anti-Matter ROUNDS!!!!"  
 - Bryce: "OH MY GOD!!!!"  
 - Lefty: "NO! RAY-ROY! WHY WOULD YOU BUY THAT!? WHY WOULD YOU BUY THAT!?!"  
 - Leroy: "What do you mean, why? Because it's a freaking 50 CAL SNIPER!!!!"  
