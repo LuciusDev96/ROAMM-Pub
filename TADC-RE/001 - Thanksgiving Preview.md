@@ -45,10 +45,10 @@
 
 - Rock: "Whoa!! What you got there, Ray-Roy???"  
 - Leroy: "Oh, you know! Birthday present! From myself!!!" (Sets it down on the table and opens it up)  
-- Leroy: "The BARRETT M82-ULTRA with HyperShock's Tannerite Anti-Matter ROUNDS!!!!"  
+- Leroy: "The GARRETT M82-NITRO with HyperShock's Tannerite Charged Anti-Matter ROUNDS!!!!"  
 - Bryce: "OH MY GOD!!!!"  
 - Lefty: "NO! RAY-ROY! WHY WOULD YOU BUY THAT!? WHY WOULD YOU BUY THAT!?!"  
-- Leroy: "What do you mean, why? Because it's a freaking 50 CAL SNIPER!!!!"  
+- Leroy: "What do you mean, why? Because it's a freaking 50 CAL Shoulder Cannon Sniper!!!!"  
 - Lefty: "Oh my god! Please tell me you at least brought something better than those shitty foam ear plugs!!!!"  
 - Leroy: "Of course I did! For the boy, that is!! And he gets goggles, too, just because you're being a silly billy! Here you go, little buddy!!!"  
 - Theo: "YES! YES! FIRE IT OFF!!!!"  
@@ -67,7 +67,7 @@
 - Bryce: "Oh!"  
 - Leroy: "HELL YEAH! COME ON UP, LITTLE BUDDY!!!!"  
 - Lefty: "NO! THEO! LEROY! NO! I'M NOT LETTING HIM FIRE THAT THING ALL BY HIMSELF!!!!"  
-- Leroy: "OH MY GOD, LEFTY! WHY YOU GOTTA BE SUCH A SICK UP THE ASS!!! OBVIOUSLY I'm not going to let him fire this thing ALL BY HIMSELF!!! He's going to sit on my lap and pull the trigger while I hold the rifle and brace him with my entire body!!! Does that sound good!?!"  
+- Leroy: "OH MY GOD, LEFTY! WHY YOU GOTTA BE SUCH A PRICK!! OBVIOUSLY I'm not going to let him fire this thing ALL BY HIMSELF!!! He's going to sit on my lap and pull the trigger while I hold the rifle and brace him with my entire body!!! Does that sound good!?!"  
 - Lefty: "Oh my god! Leroy! MADRE CHINGON! Okay! Just hurry up and get it over with!!!!"  
 - Theo: "YES!!!!"  
 - Lefty: "Theo! Wait! That thing is going to kick like a mother~ Like a mule! Are you sure you want to do this!?!"  
@@ -144,7 +144,7 @@ Huge, yellow eyes with black, square pupils.
 Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little, as if his muscles for smiling and frowning were inverted.  
 It was foggy. An artificial grey cloudy sky was above them, but you could see the hexagonal panels projecting it like a hologram. It was cold. He could feel the cold air hitting his passages like sharp needles through his nonexistent nose. He knew it was all fake, but it felt so real. There was nothing he could do but play along.  
 He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew from the grass against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves, and a low humming in his left ear.  
-He calmly and collectively pulled back the bold on his M40 rifle and looked through the scope with all of his undivided attention.  
+He calmly and collectively pulled back the bolt on his M40 rifle and looked through the scope with all of his undivided attention.  
 
 - Jax: "........" **POW!!!**
 - Pomni: **"AHHHHH!!!!"**  
