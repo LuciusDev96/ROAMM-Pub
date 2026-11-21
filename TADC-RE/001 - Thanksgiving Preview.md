@@ -3,7 +3,7 @@
 
 - Squad (faintly): yeah! Whoo Hoo! Go, Lefty!!!"  
 (approaching from behind, faded out of focus)  
-- Squad: "Yeah! Lay em out Let's let Theo fire off his first rounds!!!"
+- Squad: "Yeah! Lay em out! Let's let Theo fire off his first rounds!!!"
 - Squad: "What do you say, Theo? You think you're up for it!?!"
 - Theo: "Hell yeah, I'm up for it!!!"  
 (Fully in frame)  
@@ -27,7 +27,7 @@
 - Theo: "Never point at something you don't intend to destroy!"  
 - Lefty: "And?"  
 - Theo: "Treat every gun as if it were loaded!!" 
-- Lefty: "That's right! Just chill out! If you start getting jittery, we're going to have to cut this short until you've called down! Here. This is the Glock 19! I don't have to explain it to you. You've seen it in movies and TV and basically every video game!"  
+- Lefty: "That's right! Just chill out! If you start getting jittery, we're going to have to cut this short until you've calmed down! Here. This is the Glock 19! I don't have to explain it to you. You've seen it in movies and TV and basically every video game!"  
 - Theo: "YES! Yes! I'm sorry! Thank you!"  
 - Lefty: "Alright. Take it easy! Aim. Breath. Count to ten, and fire when ready!" 
 
