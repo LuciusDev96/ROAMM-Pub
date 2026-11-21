@@ -171,7 +171,7 @@ He calmly and collectively pulled back the bolt on his M40 rifle and looked thro
 - Kinger: "COME ON, RAGATHA! JUST FOLLOW MY LEAD!!"
 - Ragatha: "UM! OKAY!!!"
 
-(Kinger and Ragatha picked the semi-auto shotguns)  
+(Kinger and Ragatha picked the pump action shotguns)  
 (Kinger bursts out of the bunker, directly into the herd, and starts blasting at nearly point-blank range)  
 - Kinger: 
 	- PERFECT HEADSHOT!
