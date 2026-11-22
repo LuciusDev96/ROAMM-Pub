@@ -48,11 +48,11 @@ Leroy heaves a big aluminum case off the bed of his pickup truck, almost as long
 - Leroy: "The BARRETT M82-ULTRA with HyperShock's Tannerite Charged Anti-Matter ROUNDS!!!!"  
 - Bryce: "OH MY GOD!!!!"  
 - Lefty: "NO! RAY-ROY! WHY WOULD YOU BUY THAT!? WHY WOULD YOU BUY THAT!?!"  
-- Leroy: "What do you mean, why? Because it's a freaking Shoulder Cannon Sniper!!!!"  
+- Leroy: "What do you mean, why? Because it's a freaking Shoulder Cannon Sniper!!!"  
 - Lefty: "Oh my god! Please tell me you at least brought something better than those shitty foam ear plugs!!!!"  
 - Leroy: "I got these slightly better ones and some goggles for the boy, just because you're being a silly billy! Here you go, little buddy!!!"  
-- Theo: "YES! YES! FIRE IT OFF!!!!"  
-- Bryce: "I WANT A TURN, TOO!!!!"  
+- Theo: "YES! YES! FIRE IT OFF!!!"  
+- Bryce: "I WANT A TURN, TOO!!!"  
 - Rock: "LINE EM UP!!!"  
 
 Leroy sets it up on it's bipod. He loads up the magazine, gets into position, looks through the scope, and aims for a cinder block down in the field.  
@@ -62,17 +62,17 @@ Theo excitedly puts the goggles and ear plugs on. Lefty quickly ushers him back.
 - Leroy: (takes a deep breath)  "........." **BOOOM!!!!** "NGGHH!!!!"  
 (The cinder block explodes into dust while the round creates a shockwave so hard that Theo felt it standing a few feet away)  
 - Theo: "OH MY GOD!!!!!"  
-- Leroy: "WHOOP! THAT FELT GOOD!!!!!"  
+- Leroy: "WHOOP! THAT FELT GOOD!!!"  
 (The squad cheers at the sight)  
-- Theo: **"I WANT TO FIRE IT, TOO!!!!"**  
+- Theo: **"I WANT TO FIRE IT, TOO!!!"**  
 - Bryce: "Oh!"  
-- Leroy: "HELL YEAH! COME ON UP, LITTLE BUDDY!!!!"  
-- Lefty: "NO! THEO! LEROY! NO! I'M NOT LETTING HIM FIRE THAT THING ALL BY HIMSELF!!!!"  
+- Leroy: "HELL YEAH! COME ON UP, LITTLE BUDDY!!!"  
+- Lefty: "NO! THEO! LEROY! NO! I'M NOT LETTING HIM FIRE THAT THING ALL BY HIMSELF!!!"  
 - Leroy: "OH MY GOD, LEFTY! WHY YOU GOTTA BE SUCH A PRICK!! OBVIOUSLY I'm not going to let him fire this thing ALL BY HIMSELF!!! He's going to sit on my lap and pull the trigger while I hold the rifle and brace him with my entire body!!! Does that sound good!?!"  
 - Lefty: "Oh my god! Leroy! MADRE CHINGON! Okay! Just hurry up and get it over with!!!!"  
-- Theo: "YES!!!!"  
+- Theo: "YES!!!"  
 - Lefty: "Theo! Wait! That thing is going to kick like a mother~ Like a mule! Are you sure you want to do this!?!"  
-- Theo: "I'm positive! Stop treating my like a little kid!!!!" (Hurries over to sit on Leroy's lap)  
+- Theo: "I'm positive! Stop treating my like a little kid!!!" (Hurries over to sit on Leroy's lap)  
 - Bryce: "Oh, shit! I gotta record this!!!" (pulls out his phone)  
 - Leroy: "Hey, send me that video when we're done, Bryce!! Load it up, Theo!!!"  
 
@@ -98,17 +98,17 @@ Theo pulls it back about a half inch before Leroy reaches over and pulls it back
 - Leroy: "Okay! Three. Two. Fire when ready!"  
 - Theo: ".........." 
 ## **BOOOM!!!!**  
-## **"(SCREAM)!!!!"**  
+## **"(SCREAM)!!!"**  
 
 He felt his entire skeleton and teeth rattle.  
 
-- Rock: "WHOAAAAAA!!!!"  
-- Bryce: "HOLY CRAAAAP!!!!!"  
+- Rock: "WHOAAAAAA!!!"  
+- Bryce: "HOLY CRAAAAP!!!"  
 - Leroy: "THAT WAS AMAZING!!!! THEO! LITTLE BUDDY! HOW DID THAT FEEL!?!?"  
 
 (Switch to Theo's POV)  
-- Theo: (Holds his chest and growls in pain) "HMMMmmmmm!!!!!"  
-- Leroy: "HAHA! He told you it was going to kick! But you did it!! You FIRED A BOOSTED 50 CAL!!!!"
+- Theo: (Holds his chest and growls in pain) "HMMMmmmmm!!!!"  
+- Leroy: "HAHA! He told you it was going to kick! But you did it!! You FIRED A BOOSTED 50 CAL!!!"
 - Theo (strained): "Yeah! Thank you! I'm okay! I just need to catch my breath!!!"  
 
 He walks away slowly towards the pickup truck.  
