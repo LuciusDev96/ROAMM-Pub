@@ -7,7 +7,7 @@
 - Squad: "What do you say, Theo? You think you're up for it!?!"
 - Theo: "Hell yeah, I'm up for it!!!"  
 (Fully in frame)  
-- Lefty: "Alright. Let's start you off small so that you know what to expect! This is the Taurus TX 22LR. Subsonic, small and compact. Basic self-defense carry, perfect for teaching little guys like you how to plink. It's basically an airsoft on steroids!"  
+- Lefty: "Alright. Let's start you off small so that you know what to expect! This is the Taurus TX22. Subsonic, small and compact. Basic self-defense carry, perfect for teaching little guys like you how to plink. It's basically an airsoft on steroids!"  
 - Theo: "Okay! I'm ready!!!"  
 - Lefty: "Line it up and fire when you're ready!"  
 - Theo: "............." **PLINK!** "OH!"  
@@ -33,7 +33,7 @@
 
 - Theo: (takes a deep breath): "............." **BANG! "ACK!"** 
 - Rock: "AW, YEAH! That was off the chain, little man!!!"  
-- Theo: "YEAH!!! **I LOVE IT!!!!"** (Fires off two more rounds, consecutively)  
+- Theo: "YEAH!!! **I LOVE IT!!!!"** (Fires off three more rounds, consecutively)  
 - Lefty: "WHOA! WHOA! WHOA! Okay, Mateo! That's enough for now!!!" (Grabs his wrist and takes it away from him)  
 - Leroy (a few feet away): "Oh, come on! He's just having a little fun!!"  
 - Lefty: "No way! The boy's amped up on Monster! I don't want nobody getting hurt in anyway, whatsoever! We're skating on thin ice bringing him along as it is!!"  
@@ -41,22 +41,23 @@
 - Lefty: "THAT'S NOT THE POINT!!!"  
 - Leroy: "Ay, whatever! Make way! It's my turn!!!"  
 
-(Leroy heaves a big aluminum case off the bed of his pickup truck, almost as long as he is tall. Theo is smiling ear to ear, doing little hops)  
+Leroy heaves a big aluminum case off the bed of his pickup truck, almost as long as he is tall. Theo is smiling ear to ear, doing little hops.  
 
 - Rock: "Whoa!! What you got there, Ray-Roy???"  
 - Leroy: "Oh, you know! Birthday present! From myself!!!" (Sets it down on the table and opens it up)  
-- Leroy: "The BARRETT M82 with HyperShock's Tannerite Charged Anti-Matter ROUNDS!!!!"  
+- Leroy: "The BARRETT M82-ULTRA with HyperShock's Tannerite Charged Anti-Matter ROUNDS!!!!"  
 - Bryce: "OH MY GOD!!!!"  
 - Lefty: "NO! RAY-ROY! WHY WOULD YOU BUY THAT!? WHY WOULD YOU BUY THAT!?!"  
-- Leroy: "What do you mean, why? Because it's a freaking 50 CAL Shoulder Cannon Sniper!!!!"  
+- Leroy: "What do you mean, why? Because it's a freaking Shoulder Cannon Sniper!!!!"  
 - Lefty: "Oh my god! Please tell me you at least brought something better than those shitty foam ear plugs!!!!"  
-- Leroy: "Of course I did! For the boy, that is!! And he gets goggles, too, just because you're being a silly billy! Here you go, little buddy!!!"  
+- Leroy: "I got these slightly better ones and some goggles for the boy, just because you're being a silly billy! Here you go, little buddy!!!"  
 - Theo: "YES! YES! FIRE IT OFF!!!!"  
 - Bryce: "I WANT A TURN, TOO!!!!"  
 - Rock: "LINE EM UP!!!"  
 
-(Leroy sets it up on it's bipod. He loads up the magazine, gets into position, looks through the scope, and aims for a cinder block down in the field)  
-(Theo puts on the ear muffs and goggles. Lefty quickly ushers him back)  
+Leroy sets it up on it's bipod. He loads up the magazine, gets into position, looks through the scope, and aims for a cinder block down in the field.  
+Theo excitedly puts the goggles and ear plugs on. Lefty quickly ushers him back.
+
 - Lefty: "Theo! Get behind me!"  
 - Leroy: (takes a deep breath)  "........." **BOOOM!!!!** "NGGHH!!!!"  
 (The cinder block explodes into dust while the round creates a shockwave so hard that Theo felt it standing a few feet away)  
@@ -75,12 +76,12 @@
 - Bryce: "Oh, shit! I gotta record this!!!" (pulls out his phone)  
 - Leroy: "Hey, send me that video when we're done, Bryce!! Load it up, Theo!!!"  
 
-(Theo tries to pull the bolt back, but it's too heavy that he thinks it's locked)  
+Theo tries to pull the bolt back, but it's too heavy that he thinks it's locked.  
 
 - Theo: "It's stuck! I think it's locked!!"  
 - Leroy: "No, it's not locked! Come on! Man up! You can do this!!!"  
 
-(Theo pulls it back about a half inch before Leroy reaches over and pulls it back with Theo's hand still gripping it)  
+Theo pulls it back about a half inch before Leroy reaches over and pulls it back with Theo's hand still gripping it.  
 
 - Leroy: "Alright! Do not fire until I tell you to, you hear me!?!"  
 - Theo: "Okay!"  
@@ -99,7 +100,7 @@
 ## **BOOOM!!!!**  
 ## **"(SCREAM)!!!!"**  
 
-(He felt his entire skeleton and teeth rattle)  
+He felt his entire skeleton and teeth rattle.  
 
 - Rock: "WHOAAAAAA!!!!"  
 - Bryce: "HOLY CRAAAAP!!!!!"  
@@ -107,7 +108,7 @@
 
 (Switch to Theo's POV)  
 - Theo: (Holds his chest and growls in pain) "HMMMmmmmm!!!!!"  
-- Leroy: "HAHA! He told you it was going to kick! But you did it!! You FIRED A 50 CAL!!!!"
+- Leroy: "HAHA! He told you it was going to kick! But you did it!! You FIRED A BOOSTED 50 CAL!!!!"
 - Theo (strained): "Yeah! Thank you! I'm okay! I just need to catch my breath!!!"  
 
 He walks away slowly towards the pickup truck.  
@@ -116,13 +117,14 @@ Everything stops and goes quiet.
 His vision slowly turns to black and he passes out.  
 
 Leroy picks him up and sets him down gently on the bed of his pickup.  
-Lefty opens his jacket and pulls back his shirt. He feels and puts his ear to his chest. 
-(Theo starts coming back)  
+Lefty opens his jacket and pulls back his shirt. He feels and puts his ear to his chest.  
+Theo starts coming back.  
+
 - Lefty: "Hey! Hey, take it easy."  
 (Lefty shines a flashlight into Theo's eyes)  
 - Lefty: "Can you hear me? Are you okay?"  
 - Theo: (hears a sharp ringing noise) "Huh? What? What happened?"  
-- Lefty: "Nothing. You're going to be okay. Nothing's broken and you don't have a concussion. You're in shock. Too much caffeine and excitement."  
+- Lefty: "Nothing. You got the wind knocked out of you. You're going to be okay. Nothing's broken and you don't have a concussion. You're in shock. Too much caffeine and excitement."  
 - Theo: "I can't... I think I can't hear you very well."  
 - Lefty: "Oh. You hear a tiny ringing noise? Tell your mom to take you to a doctor if that doesn't go away by tomorrow. You got that?"  
 - Theo: (nods his head)  
@@ -143,8 +145,8 @@ Yellow gloves attached to long, stretchy noodle arms.
 Huge, yellow eyes with black, square pupils.  
 Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little, as if his muscles for smiling and frowning were inverted.  
 It was foggy. An artificial grey cloudy sky was above them, but you could see the hexagonal panels projecting it like a hologram. It was cold. He could feel the cold air hitting his passages like sharp needles through his nonexistent nose. He knew it was all fake, but it felt so real. There was nothing he could do but play along.  
-He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew from the grass against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves, and a low humming in his left ear.  
-He calmly and collectively pulled back the bolt on his M40 rifle and looked through the scope with all of his undivided attention.  
+He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew from the grass against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves over a low humming.  
+He calmly and collectively pulled back the bolt on his Winchester 70 and looked through the scope with all of his undivided attention.  
 
 - Jax: "........" **POW!!!**
 - Pomni: **"AHHHHH!!!!"**  
@@ -156,12 +158,12 @@ He calmly and collectively pulled back the bolt on his M40 rifle and looked thro
 - Jax: "There is, but I don't have time to explain it to you. You better change your position cuz they got a lock on you, now!"
 - Pomni: "WHAT!?!"
 
-(A heard of angry, monstrous turkeys burst out of the woods and charge at them. These birds were about as tall as Pomni, but twice as wide as she was, and bared sharp teeth in their beaks with huge, razor talons, gobbling angry at them)  
+A heard of angry, monstrous turkeys burst out of the woods and charge at them. These birds are about as tall as Pomni but twice as wide as she is, and bared sharp teeth in their beaks with huge, razor talons, gobbling angry at them.  
 
 - Jax: "COME ON! GET THEIR ATTENTION!!!"
 - Pomni: "JAX! Uh! UHHH!!!!"
 
-(She starts shooting her little pistol into the herd. She hits one of them in the eye, but it only gets angry and goes after her)  
+She starts shooting her little pistol into the herd. She hits one of them in the eye, but it only gets angry and goes after her.  
 - Pomni: "AH! JAX! JAX! HURRY!!!!"
 - Jax: **POW!!! POW!!! POW!!!** (Downs three in a row)
 - Jax: "Come on, Pom Pom! You gotta hit some, too!!!"
@@ -171,8 +173,8 @@ He calmly and collectively pulled back the bolt on his M40 rifle and looked thro
 - Kinger: "COME ON, RAGATHA! JUST FOLLOW MY LEAD!!"
 - Ragatha: "UM! OKAY!!!"
 
-(Kinger and Ragatha picked the pump action shotguns)  
-(Kinger bursts out of the bunker, directly into the herd, and starts blasting at nearly point-blank range)  
+Kinger and Ragatha picked the pump action shotguns.  
+Kinger bursts out of the bunker into the herd, and starts blasting at nearly point-blank range.  
 - Kinger: 
 	- PERFECT HEADSHOT!
 	- PERFECT HEADSHOT! 
@@ -186,14 +188,13 @@ He calmly and collectively pulled back the bolt on his M40 rifle and looked thro
 	- +10 DAMAGE!
 	- +5 DAMAGE!
 	- MISS! 
-	- MISS!
 
-(Zooble and Gangle picked the assault rifles, but instead of going directly into the herd, they constructed a big cage hung over a clearing. Zooble went in and got their attention and is heading towards the clearing where Gangle is waiting to cut and drop the cage)   
+Zooble and Gangle picked the assault rifles, but instead of going directly into the herd, they constructed a big cage hung over a clearing. Zooble went in and got their attention and is heading towards the clearing where Gangle is waiting to drop the cage.   
 - Zooble: "NOW, GANGLE!!!" (Dives forward)
 - Gangle: "EEK!"
 
-(Gangle cuts the rope and the cage falls perfectly over the heard, catching every one of them. Gangle helps Zooble up, and they both go to take out their catch)  
-(They have their rifles out, but stop at the cage. The turkeys all calmed down and are looking at them with sad eyes)  
+Gangle cuts the rope and the cage falls perfectly over the herd, catching every one of them. Gangle helps Zooble up, and they both go to take out their catch.  
+They have their rifles out, but stop at the cage. The turkeys all calmed down and are looking at them with sad eyes.  
 - Gangle: "Um.... Oh no!!!"
 - Zooble: "I don't want to kill these innocent creatures!"
 - Jax: (calls out to them) "Oh, come on! You're the one who was going on about how none of this is real! Just gun them down like they did at~"
@@ -201,7 +202,7 @@ He calmly and collectively pulled back the bolt on his M40 rifle and looked thro
 - Caine: **"TIMES UP!!! TALLYING THE SCORES!!!!"** 
 
 Team Saltwater Taffy: 19 Kills!  
-Team Black Licorice: 14 Kills!  
+Team Black Licorice: 15 Kills!  
 Team Gumdrop: **ZERO KILLS!!!!**
 
 - Caine: **"WOW! IT'S A TOTAL SLAUGHTER FOR TEAM GUMDROP!!!"**
