@@ -7,7 +7,7 @@
 - Squad: "What do you say, Theo? You think you're up for it!?!"
 - Theo: "Hell yeah, I'm up for it!!!"  
 (Fully in frame)  
-- Lefty: "Alright. Let's start you off small so that you know what to expect! This is the Taurus TX22. Subsonic, small and compact. Perfect for teaching little guys like you how to plink. It's basically an airsoft on steroids!"  
+- Lefty: "Alright. Let's start you off small so that you know what to expect! This is the Taurus TX22. Basic sports pistol. Perfect for teaching little guys like you how to plink. It's basically an airsoft on steroids!"  
 - Theo: "Okay! I'm ready!!!"  
 - Lefty: "Line it up and fire when you're ready!"  
 - Theo: "............." **PLINK!** "OH!"  
