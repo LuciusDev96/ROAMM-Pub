@@ -145,7 +145,7 @@ Yellow gloves attached to long, stretchy noodle arms.
 Huge, yellow eyes with black, square pupils.  
 Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little even if he was unhappy, as if his muscles for smiling and frowning were inverted.  
 It was foggy. An artificial grey cloudy sky was above them, but you could see the hexagonal panels projecting it like a hologram. It was cold. He could feel the cold air hitting his passages like sharp needles through his nonexistent nose. He knew it was all fake, but it felt so real. There was nothing he could do but play along.  
-He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew from the grass against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves over a low humming.  
+He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves over a low humming.  
 He calmly and collectively pulled back the bolt on his Winchester 70 and looked through the scope with all of his undivided attention.  
 
 - Jax: "........" **POW!!!**
