@@ -124,7 +124,7 @@ Theo starts coming back.
 (Lefty shines a flashlight into Theo's eyes)  
 - Lefty: "Can you hear me? Are you okay?"  
 - Theo: (hears a sharp ringing noise) "Huh? What? What happened?"  
-- Lefty: "Nothing. You got the wind knocked out of you. You're going to be okay. Nothing's broken and you don't have a concussion. You're in shock. Too much caffeine and excitement."  
+- Lefty: "Nothing. You got the wind knocked out of you. You're going to be okay. Nothing's broken and you don't have a concussion. You just went into shock. Too much caffeine and excitement."  
 - Theo: "I can't... I think I can't hear you very well."  
 - Lefty: "Oh. You hear a tiny ringing noise? Tell your mom to take you to a doctor if that doesn't go away by tomorrow. You got that?"  
 - Theo: (nods his head)  
