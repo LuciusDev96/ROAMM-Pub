@@ -143,7 +143,7 @@ There was just a calm, beautiful blue sky with white, fluffy clouds up above.
 
 Yellow gloves attached to long, stretchy noodle arms.  
 Huge, yellow eyes with black, square pupils.  
-Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little, as if his muscles for smiling and frowning were inverted.  
+Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little even if he was unhappy, as if his muscles for smiling and frowning were inverted.  
 It was foggy. An artificial grey cloudy sky was above them, but you could see the hexagonal panels projecting it like a hologram. It was cold. He could feel the cold air hitting his passages like sharp needles through his nonexistent nose. He knew it was all fake, but it felt so real. There was nothing he could do but play along.  
 He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew from the grass against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves over a low humming.  
 He calmly and collectively pulled back the bolt on his Winchester 70 and looked through the scope with all of his undivided attention.  
@@ -165,10 +165,13 @@ A heard of angry, monstrous turkeys burst out of the woods and charge at them. T
 
 She starts shooting her little pistol into the herd. She hits one of them in the eye, but it only gets angry and goes after her.  
 - Pomni: "AH! JAX! JAX! HURRY!!!!"
-- Jax: **POW!!! POW!!! POW!!!** (Downs three in a row)
+- Jax: **POW!!! POW!!! POW!!!** (Drops three in a row)
 - Jax: "Come on, Pom Pom! You gotta hit some, too!!!"
 - Pomni: "Then why don't we switch seats for a second Let me take the sniper! You get down here and take this stupid little thing!!!"
-- Jax: "No way, I brought this from home. This is MY personal weapon."
+- Jax: "No way, I brought this from home. This is MY personal weapon. Don't just fire into the whole herd. Pick one and fire when it gets close enough that you can see the white of it's eyes!"
+- Pomni: "Uh!!!" (Picks one and fires at it when it gets close enough, and it goes down in two shots)
+- Pomni: "Oh! I DID IT!!!"
+- Jax: "Good, now do it 10 or 20 more times!"
 
 - Kinger: "COME ON, RAGATHA! JUST FOLLOW MY LEAD!!"
 - Ragatha: "UM! OKAY!!!"
@@ -201,9 +204,9 @@ They have their rifles out, but stop at the cage. The turkeys all calmed down an
 - Zooble: "JAX! SHUT UP! HAVE SOME EMPATHY, GODDAMNIT!!!"
 - Caine: **"TIMES UP!!! TALLYING THE SCORES!!!!"** 
 
-Team Saltwater Taffy: 19 Kills!  
-Team Black Licorice: 15 Kills!  
-Team Gumdrop: **ZERO KILLS!!!!**
+Team Saltwater Taffy: 27 Kills!  
+Team Black Licorice: 24 Kills!  
+Team Gumdrop: **ZERO KILLS!!!!**  
 
 - Caine: **"WOW! IT'S A TOTAL SLAUGHTER FOR TEAM GUMDROP!!!"**
 
