@@ -171,7 +171,7 @@ She starts shooting her little pistol into the herd. She hits one of them in the
 - Jax: "Come on, Pom Pom! You gotta hit some, too!!!"
 - Pomni: "Then why don't we switch seats for a second Let me take the sniper! You get down here and take this stupid little thing!!!"
 - Jax: "No way, I brought this from home. This is MY personal weapon. Don't just fire into the whole herd. Pick one and fire when it gets close enough that you can see the white of it's eyes!"
-- Pomni: "Uh!!!" (Picks one and fires at it when it gets close enough, and it goes down in two shots)
+- Pomni: "Uh!!!" (Picks one and fires at it when it gets close enough. It goes down in two shots)
 - Pomni: "Oh! I DID IT!!!"
 - Jax: "Good, now do it 10 or 20 more times!"
 
