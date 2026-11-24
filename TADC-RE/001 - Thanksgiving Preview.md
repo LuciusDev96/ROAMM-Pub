@@ -142,7 +142,7 @@ There was just a calm, beautiful blue sky with white, fluffy clouds up above.
 .  
 
 The background is lit by hot, white spotlights.  
-The squad walking down the hallway, out of the spawn, and into their respective points on the map.  
+The squad walks down the hallway, out of the spawn, and into their respective points on the map.  
 We see yellow gloves attached to long, stretchy noodle arms.  
 Huge, yellow eyes with black, square pupils.  
 Tall and drawn like a stick figure with ridiculous rabbit ears and short purple fur. His face was stuck in a permanent "yellow like a chain-smoker" toothy grin that he could only close for a little even if he was unhappy, as if his muscles for smiling and frowning were inverted.  
