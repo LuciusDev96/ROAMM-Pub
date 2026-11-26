@@ -10,11 +10,11 @@
 - Lefty: "Alright. Let's start you off small so that you know what to expect! This is the Taurus TX22. Basic sports pistol. Perfect for teaching little guys like you how to plink."  
 - Theo: "Okay! I'm ready!!!"  
 - Lefty: "Line it up and fire when you're ready!"  
-- Theo: "............." **PLINK!** "OH!"  
+- Theo: "............." **(PLINK)** "OH!"  
 - Lefty: "Good! Again!"  
-- Theo: **PLINK!**  
+- Theo: **(PLINK)**  
 - Lefty: "Again!"  
-- Theo: **PLINK!**  
+- Theo: **(PLINK)**  
 - Lefty: "VERY GOOD!"  
 - Rock: "Whoo Hoo! Little man's fired off his first rounds!"  
 - Bryce: "Yeah! How did that feel!?!"  
@@ -31,7 +31,7 @@
 - Theo: "YES! Yes! I'm sorry! Thank you!"  
 - Lefty: "Alright. Take it easy! Aim. Breath. Count to ten, and fire when ready!" 
 
-- Theo: (takes a deep breath): "............." **BANG! "ACK!"** 
+- Theo: (takes a deep breath): "............." **(BANG) "ACK!"** 
 - Rock: "AW, YEAH! That was off the chain, little man!!!"  
 - Theo: "YEAH!!! **I LOVE IT!!!!"** (Fires off three more rounds, consecutively)  
 - Lefty: "WHOA! WHOA! WHOA! Okay, Mateo! That's enough for now!!!" (Grabs his wrist and takes it away from him)  
@@ -59,7 +59,7 @@ Leroy sets it up on it's bipod. He loads up the magazine, gets into position, lo
 Theo excitedly puts the goggles and ear plugs on. Lefty quickly ushers him back.
 
 - Lefty: "Theo! Get behind me!"  
-- Leroy: (takes a deep breath)  "........." **BOOOM!!!!** "NGGHH!!!!"  
+- Leroy: (takes a deep breath)  "........." **(BOOOM)** "NGGHH!!!!"  
 (The cinder block explodes into dust while the round creates a shockwave so hard that Theo felt it standing a few feet away)  
 - Theo: "OH MY GOD!!!!!"  
 - Leroy: "WHOOP! THAT FELT GOOD!!!"  
@@ -98,7 +98,7 @@ Theo pulls it back about a half inch before Leroy reaches over and pulls it back
 - Leroy: "Okay! Three. Two. Fire when ready!"  
 - Theo: ".........." 
 ## **BOOOM!!!!**  
-## **"(SCREAM)!!!"**  
+## **"SCREAM!!!"**  
 
 He felt his entire skeleton and teeth rattle.  
 
@@ -150,7 +150,7 @@ It was foggy. An artificial grey cloudy sky was above them, but you could see th
 He had the high ground. He lied down on his belly in the tall grass, and could very clearly feel the simulated dampness of the dew against his body. The silence of the world was only interrupted by a virtual crow or the playback of wind rustling leaves over a low humming.  
 He calmly and collectively pulled back the bolt on his Winchester 70 and looked through the scope with all of his undivided attention.  
 
-- Jax: "........" **POW!!!**
+- Jax: "........" **(POW)**
 - Pomni: **"AHHHHH!!!!"**  
 (The faint scream of a wild animal was heard)  
 
@@ -167,7 +167,7 @@ A heard of angry, monstrous turkeys burst out of the woods and charge at them. T
 
 She starts shooting her little pistol into the herd. She hits one of them in the eye, but it only gets angry and goes after her.  
 - Pomni: "AH! JAX! JAX! HURRY!!!!"
-- Jax: **POW!!! POW!!! POW!!!** (Drops three in a row)
+- Jax: **(POW) (POW) (POW)** (Drops three in a row)
 - Jax: "Come on, Pom Pom! You gotta hit some, too!!!"
 - Pomni: "Then why don't we switch seats for a second Let me take the sniper! You get down here and take this stupid little thing!!!"
 - Jax: "No way, I brought this from home. This is MY personal weapon. Don't just fire into the whole herd. Pick one and fire when it gets close enough that you can see the white of it's eyes!"
